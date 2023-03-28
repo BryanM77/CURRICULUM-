@@ -26,5 +26,5 @@
  - ver artidos de futbol. 
  - Fan de Rick and Morty.
  
-![Serie de Rick and Morty ](https://www.netflix.com/ad/title/80014749)	
+![Serie de Rick and Morty ](https://www.justwatch.com/mx/serie/rick-and-morty)	
 
