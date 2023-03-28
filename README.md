@@ -26,5 +26,5 @@
  - ver artidos de futbol. 
  - Fan de Rick and Morty.
  
-![Serie de Rick and Morty ](https://www.justwatch.com/mx/serie/rick-and-morty)	
+![https://images.justwatch.com/poster/194366728/s718/rick-and-morty.%7Bformat%7D](https://www.justwatch.com/mx/serie/rick-and-morty)	
 
